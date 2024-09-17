@@ -1,7 +1,6 @@
 
 ![Banner](_readme/matcha.png)
-## Hi there 👋
-
+# Hi there 👋
 
 - 🌱 I’m currently learning Web Development :)
 - 🤔 I’m looking for help with JavaScript
