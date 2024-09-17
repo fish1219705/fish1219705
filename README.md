@@ -11,15 +11,15 @@
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I don't like eating rice but pretty like sticky rice 😋
 
-#### 1. Who am I ?
-     An international student study in Canada.
-     A Bachelor of Philosophy???
-     A girl in her 20s trying to explore her potential, Adventure in the New World
+####  Who am I ?
+     1. An international student study in Canada.
+     2. A Bachelor of Philosophy???
+     3. A girl in her 20s trying to explore her potential, Adventure in the New World
 
-#### 2. SuperPower
-     Not bad temper
-     Endurance
-     Focus
+####  SuperPower
+     1. Not bad temper
+     2. Endurance
+     3. Focus
 
      
      
