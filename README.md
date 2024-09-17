@@ -1,5 +1,5 @@
 
-![Banner](_readme/matcha.jpg)
+![Banner](_readme/matcha.png)
 
 ## Hi there 👋
 
