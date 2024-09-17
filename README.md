@@ -12,14 +12,14 @@
 - ⚡ Fun fact: I don't like eating rice but pretty like sticky rice 😋
 
 ####  Who am I ?
-     1. An international student study in Canada.
-     2. A Bachelor of Philosophy???
-     3. A girl in her 20s trying to explore her potential, Adventure in the New World
+1. An international student study in Canada.
+2. A Bachelor of Philosophy (sounds weird)
+3. A girl in her 20s trying to explore her potential, Adventure in the New World
 
 ####  SuperPower
-     1. Not bad temper
-     2. Endurance
-     3. Focus
+1. Not bad temper
+2. Endurance
+3. Focus
 
      
      
