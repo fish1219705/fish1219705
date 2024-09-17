@@ -9,7 +9,7 @@
 - 🤔 I’m looking for help with JavaScript
 - 💬 Ask me about WHERE COULD FIND BEST DESSERT (Taro, Coconut, Matcha....etc.) IN *Tianjin* !
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I don't like eating rice but pretty like sticky rice 😋
+- ⚡ Fun fact: I don't like eating rice but fancy sticky rice 😋
 
 ####  Who am I ?
 1. An international student study in Canada.
