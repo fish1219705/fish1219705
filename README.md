@@ -8,4 +8,4 @@
 - 💬 Ask me about WHERE COULD FIND BEST DESSERT SHOPS IN TIANJIN!
   
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I don't like eat rice but like sticky rice 😋
+- ⚡ Fun fact: I don't like eating rice but pretty like sticky rice 😋
