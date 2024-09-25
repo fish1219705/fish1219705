@@ -21,6 +21,6 @@
 2. Endurance
 3. Focus
 
-### WELCOME CONNECT WITH ME
+### WELCOME CONNECT WITH ME!
 [My Linkedin](https://www.linkedin.com/in/peiyu-han-762337233/)
      
