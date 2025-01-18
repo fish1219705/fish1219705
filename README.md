@@ -12,7 +12,7 @@
 - ⚡ Fun fact: I don't like eating rice but fancy sticky rice 😋
 
 ####  Who am I ?
-1. An international student study in Canada.
+1. ISTJ dog person
 2. A Bachelor of Philosophy (sounds weird)
 3. A girl in her 20s trying to explore her potential, start an unknown adventure in the New World
 
