@@ -1,4 +1,4 @@
-![Banner](_readme/matcha.jpg)
+![Banner](_readme/Frame%201.png)
 
 # Hi there 👋
 
@@ -13,7 +13,7 @@
 - 💍 Goal: CODE FIRST then learn to cook healthy dishes for my future lover
 
 ####  Who am I ?
-1. A dog person but ISTJ
+1. A dog person also ISTJ
 2. The Minimalist
 3. A girl in her 20s trying to explore her potential, start an unknown adventure in the *New World*
 
