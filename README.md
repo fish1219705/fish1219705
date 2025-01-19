@@ -5,7 +5,7 @@
 ## Peiyu Han
 ### A coding beginner & learner
 
-- 😄 Pronouns: She/Her
+- 🐯 Pronouns: She/Her
 - 🌱 I’m currently learning **Web Development** :)
 - 🤔 I’m looking for help with JavaScript, tech stacks....
 - 💬 Ask me about how spicy and sour I can take
