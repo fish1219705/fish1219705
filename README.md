@@ -7,7 +7,7 @@
 
 - 🐯 Pronouns: She/Her
 - 🌱 I’m currently learning **Web Development** :)
-- 🤔 I’m looking for help with JavaScript, tech stacks....
+- 🤔 I’m looking for help with JavaScript, tech stacks, Figma, design tools....
 - 💬 Ask me about how spicy and sour I can take
 - ⚡ Fun fact: I don't like eating rice but fancy sticky rice 😋
 - 💍 Goal: CODE FIRST then learn to cook healthy dishes for my future lover
