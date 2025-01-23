@@ -8,8 +8,8 @@
 - 🐯 Pronouns: She/Her
 - 🌱 I’m currently learning **Web Development** :)
 - 🤔 I’m looking for help with JavaScript, tech stacks, Figma, design tools....
-- 💬 Ask me about how spicy and sour I can take
-- ⚡ Fun fact: I don't like eating rice but fancy sticky rice 😋
+- 💬 Ask me about Cisco, CLI and VMware (if I still remember some of those)
+- ⚡ Fun fact: I reassembled a computer motherboard once (luckily I didn't break it)
 - 💍 Goal: CODE FIRST then learn to cook healthy dishes for my future lover
 
 ####  Who am I ?
