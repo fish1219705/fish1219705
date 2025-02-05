@@ -7,7 +7,7 @@
 
 - 🐯 Pronouns: She/Her
 - 🌱 I’m currently learning **Web Development** :)
-- 🤔 I’m looking for help with JavaScript, tech stacks, Figma, design tools....
+- 🤔 I’m looking for help with PHP, JavaScript, tech stacks, Figma, design tools....
 - 💬 Ask me about Cisco, CLI and VMware (if I still remember some of those)
 - ⚡ Fun fact: I've built a computer motherboard from scratch and got it up and running (luckily I didn't break it, but I almost did).
 - 💍 Goal: CODE FIRST then learn to cook healthy dishes for my future lover
