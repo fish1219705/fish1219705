@@ -15,7 +15,7 @@
 ####  Who am I ?
 1. A dog person also ISTJ
 2. The Minimalist
-3. On a mission to see what I’m capable of—let’s see where this adventure goes in the *New World*
+3. Determined to see where this adventure goes in the *New World*
 
 ####  SuperPower
 1. Not bad temper
