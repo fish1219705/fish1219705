@@ -20,7 +20,7 @@
 ####  SuperPower
 1. Not bad temper
 2. Endurance
-3. Focused
+3. Focused & Productive
 
 ### WELCOME CONNECT WITH ME!
 My [Linkedin](https://www.linkedin.com/in/peiyu-han-762337233/) is here
