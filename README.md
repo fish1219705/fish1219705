@@ -25,7 +25,7 @@
 ---
 
 ### WELCOME CONNECT
-[![LinkedIn Badge](https://img.shields.io/badge/LinkedIn-0183BF?style=flat&labelColor=0183BF&logo=linkedin&logoColor=white&link=https://www.linkedin.com/in/adam-thomas-6b563012(https://www.linkedin.com/in/peiyu-han-762337233/))](https://www.linkedin.com/in/peiyu-han-762337233/)
+[![LinkedIn Badge](https://img.shields.io/badge/LinkedIn-0183BF?style=plastic&labelColor=0072b1&logo=linkedin&logoColor=white&link=https://www.linkedin.com/in/adam-thomas-6b563012(https://www.linkedin.com/in/peiyu-han-762337233/))](https://www.linkedin.com/in/peiyu-han-762337233/)
 
 ---
      
