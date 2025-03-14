@@ -22,6 +22,6 @@
 2. Endurance
 3. Focused & Productive
 
-### WELCOME CONNECT WITH ME!
-My [Linkedin](https://www.linkedin.com/in/peiyu-han-762337233/) is here
+### WELCOME CONNECT
+[![LinkedIn Badge](https://img.shields.io/badge/LINKEDIN-0183BF?style=flat-square&labelColor=0183BF&logo=linkedin&logoColor=white&link=https://www.linkedin.com/in/adam-thomas-6b563012(https://www.linkedin.com/in/peiyu-han-762337233/))](https://www.linkedin.com/in/peiyu-han-762337233/)
      
